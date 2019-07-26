@@ -6,3 +6,4 @@ Creating a new branch is quick AND simple
 add merge 
 I am work
 i love wangruofei forevery
+i known she is too
